@@ -4,4 +4,4 @@
 - 💞️ I don't know what i'm looking to collaborate with
 - 📫 How to reach me - Join Discord: https://dsc.gg/operasworld
 
-Thank you !
+Thank you!
